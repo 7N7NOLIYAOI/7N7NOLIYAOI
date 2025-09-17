@@ -1,10 +1,7 @@
- ![](https://komarev.com/ghpvc/?username=jadehariey&color=42f5d7)
-
-<div align="center">   i always have to remind myself that these bullets can save lives too . </div> 
-
+ ![](https://komarev.com/ghpvc/?username=jadehariey&color=823217)
 
 <div align="center">
-  <img src="https://media.tenor.com/l-XSbr1IMAcAAAAi/phighting-roblox-phighting-medkit.gif">
+  <img src="https://i.postimg.cc/5Nf84nfF/IMG-3970.png">
 </div>
 
 ‎
